@@ -1,2 +1,3 @@
 # ꒰ঌ ໒꒱
-hi
+**Koko** / Kichi
+how theh fuck do you wokre this
